@@ -1,1 +1,13 @@
-# 30-days-social-media-post-calendar
+# Digitalmarketing
+
+**company**: CODTECH IT SOLUTIONS
+
+**NAME**: Shaik.Sameera 
+
+**INTERN ID**: CT06DN1687
+
+**DOMAIN**: DIGITAL MARKETING 
+
+**DURATION**: 6 WEEKS 
+
+**MENTOR**: NEELA SANTOSH
