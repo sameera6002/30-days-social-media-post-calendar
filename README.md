@@ -10,6 +10,6 @@
 
 **DURATION**: 6 WEEKS 
 
-**MENTOR**: NEELA SANTOSH
+**MENTOR**: NEELA SANTOS
 
-![1000062922](https://github.com/user-attachments/assets/4c1202ab-f37e-494f-bb71-df3225a082e4)
+![1000063323](https://github.com/user-attachments/assets/1b361c39-6b90-4c09-b259-60718407c8c7)
