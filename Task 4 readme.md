@@ -1,0 +1,16 @@
+
+# DIGITAL MARKETING 
+
+**company**: CODTECH IT SOLUTIONS
+
+**NAME**: Shaik.Sameera
+
+**INTERN ID**: CT06DN1687
+
+**DOMAIN**: DIGITAL MARKETING 
+
+**DURATION**: 6 WEEKS 
+
+**MENTOR**: NEELA SANTOSH
+
+![1000063389](https://github.com/user-attachments/assets/960b84bf-1008-4276-a14f-05cbf57e8829)
